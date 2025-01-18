@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading, gaming, cooking and computer science.
 - 🌱 I’m currently learning computer science.
 - 💞️ I’m looking to collaborate on computer thing's such as coding and lab's.
-- 📫 How to reach me at avillanueva41@student.ccc.edu
+- 📫 How to reach me at avillanueva91@student.ccc.edu
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love to play video games, watch movie's, and relax on the weeekend's from college.
 
